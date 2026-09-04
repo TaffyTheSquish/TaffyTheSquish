@@ -28,9 +28,12 @@ If you want to get my attention Wispering is the best way! (bc it pings me lmao)
 Always INT unless stated otherwise and cuddles/hiding are welcomed and encouraged!! I promise I dont bite >w< <br>
 I **DONT** do rps unless they are just silly bits but if im in cos or whatever dont act like I am the character.
 <br>
-<img src="https://i.imgur.com/9JqB3yd.png"
+<img src="https://i.imgur.com/9JqB3yd.png" align="left" style="float:right;width:300px;height:300px;">
+𐔌 ﹒ ⋆ ꩜ Dni & Bfyi ⋆ 𓂃 ₊ ⊹ <br>
+Dni:
+ Transphopic & Homophobic, alterhuman or furry haters, [basic dni criteria](https://dni-criteria.carrd.co/),
 
-<img src=https://i.imgur.com/63A6EiK.png align="left" style="float:right;width:300px;height:300px;" >
+<img src=https://i.imgur.com/63A6EiK.png>
 <!--- text by image 
 LIST
 - divider 
