@@ -30,9 +30,11 @@ I **DONT** do rps unless they are just silly bits but if im in cos or whatever d
 <br>
 <img src="https://i.imgur.com/9JqB3yd.png" align="left" style="float:right;width:300px;height:300px;">
 𐔌 ﹒ ⋆ ꩜ Dni & Bfyi ⋆ 𓂃 ₊ ⊹ <br>
-Dni:
- Transphopic & Homophobic, alterhuman or furry haters, [basic dni criteria](https://dni-criteria.carrd.co/),
+Dni: Transphopic & Homophobic, Alterhuman or furry haters,
 
+[basic dni criteria](https://dni-criteria.carrd.co/)
+
+,
 <img src=https://i.imgur.com/63A6EiK.png>
 <!--- text by image 
 LIST
