@@ -35,7 +35,7 @@
 
 [basic dni criteria](https://dni-criteria.carrd.co/)
 , **I believe that all systems are valid if that pisses you off politely dni** (I will *not* argue about this and I dont wanna start fights.), dni if your under 14 please, Just generally un-openminded people dni <br>
-I block freely! If you make me uncomfy Ill hide or block you completely <3
+I block freely! If you make me uncomfy Ill hide or block you completely <3 <br>
 ***If you respect me, Ill respect you <3*** <br>
 ★ Bfyi!: <br>
  I use tonetags a lot and appreciate them being used for me but it isnt a requirement [ask if you need any clarification! I seriously dont mind!], I swear a lot lmao I dont usually in pt bc the safe server is evil /j, My spelling is so ass so I apologize in advance, Im very forgetful lmao plz dont be offended if I forgot ur name, I have a hard time with texting/having conversations but I try!!!
