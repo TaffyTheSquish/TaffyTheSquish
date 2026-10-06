@@ -20,13 +20,13 @@
  - what im doing is usually in my pt "name" <br>
 ♡ My most frequent ponies!: <br>
  - My sona (Kody) "[ SONA (or name) | status | int status" <br>
- - Spine! (UTMV OC) "[ Spine | status | int status" <br>
- - Boyflux pony "★ ! BOYFLUX ~ int status" <br>
- - Caine (TADC Cos) "[ Caine | int status etc" <br>
+ - Fell [kinsona] "[ FELL kinsona | status | int status" <br>
+ - Yippee / TBH creature "'Yippee!'| status | int status" <br>
+ - Killer, Dust, or Error sans COS <br>
 ♡ Not all my ponies have names bc they often are just statuses <br>
-♡ If you want to get my attention Wispering is the best way! (bc it pings me lmao) <br>
+♡ If you want to get my attention whispering is the best way! (bc it pings me lmao) <br>
 ♡ Always INT unless stated otherwise and cuddles/hiding are welcomed and encouraged!! I promise I dont bite >w< <br>
-♡ I **DONT** do rps unless they are just silly bits but if im in cos or whatever dont act like I am the character.
+♡ <bold> I **DONT** do rps unless they are just silly bits but if im in cos or whatever dont act like I am the character. </bold>
 <br>
 <img src="https://i.imgur.com/E3Pq14H.png" align="left" style="float:right;width:300px;height:300px;">
 𐔌 ﹒ ⋆ ꩜ Dni & Bfyi ⋆ 𓂃 ₊ ⊹ <br>
