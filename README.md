@@ -14,12 +14,15 @@
 ── ⟢ ・⸝⸝ જ⁀➴ Sys profile/acc here 
 
 [@TheSkellySystem](https://github.com/TheSkellySystem) (wip page)
-<img src="https://i.imgur.com/WBE9ewY.png;" align="right" style="float:left;width:300px;height:300px;" >
+
+<img src="https://i.imgur.com/WBE9ewY.png;" align="right" style="float:left;width:400px;height:400px;" >
 <br>
+
 ───── ⋆⋅☆ PonyTown ☆⋅⋆ ───── <br>
 ♡ Usually around the library or in the UT/DR section! <br>
 ♡ Im normally offtab doing something else so if I dont reply thats why :P <br>
  - what im doing is usually in my pt "name" <br>
+
 ♡ My most frequent ponies!: <br>
  - My sona (Kody) "[ SONA (or name) | status | int status" <br>
  - Fell [kinsona] "[ FELL kinsona | status | int status" <br>
@@ -30,7 +33,7 @@
 ♡ Always INT unless stated otherwise and cuddles/hiding are welcomed and encouraged!! I promise I dont bite >w< <br>
 ♡ <bold> I **DONT** do rps unless they are just silly bits but if im in cos or whatever dont act like I am the character. </bold>
 <br>
-<img src="https://i.imgur.com/E3Pq14H.png" align="left" style="float:right;width:300px;height:300px;">
+<img src="https://i.imgur.com/E3Pq14H.png" align="left" style="float:right;width:400px;height:400px;">
 𐔌 ﹒ ⋆ ꩜ Dni & Bfyi ⋆ 𓂃 ₊ ⊹ <br>
 ★ Dni: <br>
  Transphopic & Homophobic, Alterhuman or furry haters,
