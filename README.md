@@ -11,7 +11,7 @@
 ✦ AuDHD and Social anxiety so plz be patient <3 <br>
 ✦ Some of my likes/intrests!: UT/UTAUs, SMG4 + CAV, Creating Ocs, Learning new skills, Making websites, Drawing (digitally and traditionally), TADC (Caine is my fav!!), Learning new *INTRESTING* topics, Playing video games (like Minecraft!), Minecraft horror, MR PUZZLESS!! >;3 <br>
 ✦ We are a system though I, (the host/kody), am on pt the most! <br>
-── ⟢ ・⸝⸝ Sys profile/acc here @TheSkellySystem (wip page)
+── ⟢ ・⸝⸝ Sys profile/acc here -> @TheSkellySystem (wip page)
 <img src="https://i.imgur.com/WBE9ewY.png;" align="right" style="float:left;width:300px;height:300px;" >
 <br>
 ───── ⋆⋅☆ PonyTown ☆⋅⋆ ───── <br>
