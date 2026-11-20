@@ -21,13 +21,12 @@
 ───── ⋆⋅☆ PonyTown ☆⋅⋆ ───── <br>
 ♡ Usually around the library or in the UT/DR section! <br>
 ♡ Im normally offtab doing something else so if I dont reply thats why :P <br>
- - what im doing is usually in my pt "name" <br>
-
+󠁪ㅤ⤷ ゛ ˎˊ˗ what im doing is usually in my pt "name" <br>
 ♡ My most frequent ponies!: <br>
- - My sona (Kody) "[ SONA (or name) | status | int status" <br>
- - Fell [kinsona] "[ FELL kinsona | status | int status" <br>
- - Yippee / TBH creature "'Yippee!'| status | int status" <br>
- - Killer, Dust, or Error sans COS <br>
+⤷ ゛ ˎˊ˗ My sona (Kody) "[ SONA (or name) | status | int status" <br>
+➛⋆˚࿔ Fell [kinsona] "[ FELL kinsona | status | int status" <br>
+⤷ ゛ ˎˊ˗ Yippee / TBH creature "'Yippee!'| status | int status" <br>
+➛⋆˚࿔ Killer, Dust, or Error sans COS <br>
 ♡ Not all my ponies have names bc they often are just statuses <br>
 ♡ If you want to get my attention whispering is the best way! (bc it pings me lmao) <br>
 ♡ Always INT unless stated otherwise and cuddles/hiding are welcomed and encouraged!! I promise I dont bite >w< <br>
