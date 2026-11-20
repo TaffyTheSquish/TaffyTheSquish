@@ -6,7 +6,7 @@
 ₊˚ ✧ ━━━━ ꒰ঌ ⊱ ·✦· ⊰ ໒꒱ ━━━━ ✧ ₊˚ <br>
 ✦ The name is Skelly / Kody / Taffy ! <br>
 ✦ He/It/Bean [only please!] <br> 
-✦ 7teen [-14 kindly dni <3] <br>
+✦ 8teen!! [-15 kindly dni <3] <br>
 ✦ I consider myself to be: Boyflux, Transmasc, Xenogender, Demian (demiaroace), and Omniflux! <br>
 ✦ AuDHD and Social anxiety so plz be patient <3 <br>
 ✦ Some of my likes/intrests!: UT/UTAUs, Creating Ocs, Learning new skills, Making websites, Drawing (digitally and traditionally), TADC (Caine is my fav!!), Learning new *INTRESTING* topics, Playing video games (like Minecraft!), Minecraft horror >;3 <br>
@@ -34,7 +34,7 @@
  Transphopic & Homophobic, Alterhuman or furry haters,
 
 [basic dni criteria](https://dni-criteria.carrd.co/)
-, **I believe that all systems are valid if that pisses you off politely dni** (I will *not* argue about this and I dont wanna start fights.), dni if your under 14 please, Just generally un-openminded people dni <br>
+, **I believe that all systems are valid if that pisses you off politely dni** (I will *not* argue about this and I dont wanna start fights.), dni if your under 15 please, Just generally un-openminded people dni <br>
 I block freely! If you make me uncomfy Ill hide or block you completely <3 <br>
 ***If you respect me, Ill respect you <3*** <br>
 ★ Bfyi!: <br>
