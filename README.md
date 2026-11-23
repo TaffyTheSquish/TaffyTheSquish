@@ -12,8 +12,8 @@
 ✦ Some of my likes/intrests!: UT/UTAUs, SMG4 + CAV, Creating Ocs, Learning new skills, Making websites, Drawing (digitally and traditionally), TADC (Caine is my fav!!), Learning new *INTRESTING* topics, Playing video games (like Minecraft!), Minecraft horror, MR PUZZLESS!! >;3 <br>
 ✦ We are a system though I, (the host/kody), am on pt the most! <br>
 ── ⟢ ・⸝⸝ જ⁀➴ Sys profile/acc here 
-
-[@TheSkellySystem](https://github.com/TheSkellySystem) (wip page)
+ 
+ [@TheSkellySystem](https://github.com/TheSkellySystem) (wip page)
 
 <img src="https://i.imgur.com/WBE9ewY.png;" align="right" style="float:left;width:400px;height:400px;" >
 <br>
@@ -36,7 +36,6 @@
 𐔌 ﹒ ⋆ ꩜ Dni & Bfyi ⋆ 𓂃 ₊ ⊹ <br>
 ★ Dni: <br>
  Transphopic & Homophobic, Alterhuman or furry haters,
-
 [basic dni criteria](https://dni-criteria.carrd.co/)
 , **I believe that all systems are valid if that pisses you off politely dni** (I will *not* argue about this and I dont wanna start fights.), dni if your under 15 please, Just generally un-openminded people dni <br>
 I block freely! If you make me uncomfy Ill hide or block you completely <3 <br>
